@@ -5,6 +5,8 @@ Cg Eriyah was here too
 
 I was here too
 
+Reporting in from Balik Pulau
+
 BELAJAR SELAGI TERDAYA
 
 I love coding
