@@ -34,7 +34,7 @@ Happy
 Congratulation !
 
 Hi and hello !
-
+Selamat Petang Semua
 Hi! I'm here too..
 
 Learn something new
@@ -52,7 +52,7 @@ Hai saya dari jawi
 happy birthday
 enjoy belajar
 
-
+happy too
 happy 
 
 bila nak balik
