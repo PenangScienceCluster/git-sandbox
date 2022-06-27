@@ -1,4 +1,6 @@
 # git-sandbox
+si ular anaconda
+
 Worry-free sandbox repository for learning.
 
 Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
