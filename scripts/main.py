@@ -1,6 +1,6 @@
 #!/usr/bin/env python
 
-from src import ana, ahkit, akari
+from src import ana, ahkit, akari, dorothy
 
 print("------------------")
 print("Project Manager")
@@ -13,4 +13,8 @@ print("------------------")
 
 print("Peacemaker")
 akari.main()
+print("------------------")
+
+print("Creativity")
+dorothy.main()
 print("------------------")
