@@ -9,6 +9,8 @@ Diana is cool! XD
 LEARN IS FUN
 nur fairuz
 
+hahahahahahahahahaha
+
 Seafood Tomyam is really good!
 
 
