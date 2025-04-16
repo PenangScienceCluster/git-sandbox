@@ -2,10 +2,10 @@ Testing testing 1 2 3
 
 hello there!
 
-Diana is cool! XD
+Lim Rui is cool! XD
 
 LEARN IS FUN
-nur fairuz
+Jaz Min
 
 Seafood Tomyam is really good!
 
@@ -30,7 +30,7 @@ Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 Hi everyone!
 kg pisang bersiri siri
 
-hi Mr ChanJuPing😍
+hi Jenna😍
 
 yakyak yeaaaaa
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
