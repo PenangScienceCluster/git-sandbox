@@ -1,6 +1,6 @@
 
 saya demam ni nak makan lambchop
-=======
+
 Star is beautiful!
 
 
@@ -8,10 +8,12 @@ Testing testing 1 2 3
 
 hello there!
 
+Lim Rui is cool! XD
 Diana is cool! XD
 nice
+
 LEARN IS FUN
-nur fairuz
+Jaz Min
 
 Seafood Tomyam is really good!
 
@@ -36,7 +38,7 @@ Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 Hi everyone!
 kg pisang bersiri siri
 
-hi Mr ChanJuPing😍
+hi Jenna😍
 
 yakyak yeaaaaa
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
