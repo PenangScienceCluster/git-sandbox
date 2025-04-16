@@ -2,10 +2,10 @@ Testing testing 1 2 3
 
 hello there!
 
-Diana is cool! XD
+Jaz Min is cool! XD
 
 LEARN IS FUN
-nur fairuz
+Lim Rui
 
 Seafood Tomyam is really good!
 
@@ -30,7 +30,7 @@ Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 Hi everyone!
 kg pisang bersiri siri
 
-hi Mr ChanJuPing😍
+hi Yee Jieh😍
 
 yakyak yeaaaaa
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
@@ -49,7 +49,7 @@ Worry-free sandbox repository for learning.
 
 Jom pergi makan kat Lotus...mcm2 ada
 
-Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
+Cikgu Nora from SMJK Phor Tay
 
 Fom Sungai Bakap
 
