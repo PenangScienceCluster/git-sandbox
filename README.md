@@ -1,4 +1,4 @@
-
+saya tak demam ni tgh makan lambshank
 saya demam ni nak makan lambchop
 =======
 Star is beautiful!
