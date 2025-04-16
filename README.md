@@ -1,3 +1,5 @@
+taktau la nak tulis apa
+
 Testing testing 1 2 3
 
 hello there!
@@ -50,7 +52,7 @@ Worry-free sandbox repository for learning.
 Jom pergi makan kat Lotus...mcm2 ada
 
 Cikgu Mohanavalli from SMK TUN SYED SHEH BARAKBAH.
-
+takmau stem a 
 Fom Sungai Bakap
 
 KEEP LEARNING
@@ -70,7 +72,7 @@ I am learning.
 I Love Learning
 
 Hello XD !
-
+aaaaaaa
 Hello. Good evening
 
 hooray!
