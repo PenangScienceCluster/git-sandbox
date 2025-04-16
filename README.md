@@ -17,7 +17,7 @@ I'm enjoying what I'm doing now!!!
 Thank you for sharinng your knowledge to us!!!
 # git-sandbox
 
-My hometown is known for durians! I hope you all enjoy them.
+My hometown is known for durian! I hope you all enjoy them.
 
 Have a nice day 
 Worry-free sandbox repository for learning.
