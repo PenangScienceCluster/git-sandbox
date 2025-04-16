@@ -1,4 +1,4 @@
-Star is beautiful!
+star shine bright like a diamond
 
 Testing testing 1 2 3
 
