@@ -1,36 +1,25 @@
-Testing testing 1 2 3
-
-hello there!
-
-Diana is cool! XD
+Testing testing 1 2 3 1 2 3
 
 LEARN IS FUN
-nur fairuz
 
-Seafood Tomyam is really good!
-
+uiiaiuiiiai
 
 LEARN IS FUN
-I'm enjoying what I'm doing now!!!
-Thank you for sharinng your knowledge to us!!!
-# git-sandbox
+I'm enjoying what I'm doing now!
 
-My hometown is known for durians! I hope you all enjoy them.
+My hometown is known for countless death! I hope you all enjoy them.
 
 Have a nice day 
-Worry-free sandbox repository for learning.
-😍
 
 hahahahahahahhaha
 
-HI EVERYONE  🤩🤩🤩🤩
-Life is good
+HI
 
 Do your best.. Learn and learn..Dont be give up !!! 👌👌👌😊
 Hi everyone!
 kg pisang bersiri siri
 
-hi Mr ChanJuPing😍
+hi Mr dodiba
 
 yakyak yeaaaaa
  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣  🤣 
