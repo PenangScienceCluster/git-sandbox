@@ -201,3 +201,4 @@ RANIA FATIHAH COMEL
 
 
 saya biasa2 jee
+ada orang gigit
