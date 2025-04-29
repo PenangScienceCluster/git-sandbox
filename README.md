@@ -179,6 +179,7 @@ tambah tolak darab bahagi
 
 Hihi 
 Hihi
+liking men is objectively better than women im not gay
 
 try
 krikrikrik
