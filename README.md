@@ -11,6 +11,8 @@ nice
 LEARN IS FUN
 nur fairuz
 
+hahahahahahahahahaha
+
 Seafood Tomyam is really good!
 
 I'm okay 
